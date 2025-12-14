@@ -1,3 +1,3 @@
 👋 Hi, I’m @AmiraRahim
 
-Just an engineering undergrad majoring in Telco. Not a coder, just some Arduino and MATLAB stuff.
+I work in IT but I'm building my portfolio to pivot. There's also probably my old college stuff here?
