@@ -2,4 +2,4 @@
 
 I work in IT but I'm building my portfolio to pivot. There's also probably my old college stuff here?
 
-Connect on linkedin: linkedin.com/in/nur-amira-a-rahim-9880a3201/
+Connect on linkedin: www.linkedin.com/in/nur-amira-a-rahim-9880a3201/
